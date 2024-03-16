@@ -1,4 +1,4 @@
- 👋 Hi, I’m @luukh1 <p>
+ 👋 Hi, I’m @luukh1 🇧🇷 🇺🇸 <p>
 -hello guys 👋🏄<p>
 Lucas Januário -🏄<p>
 Engenheiro de Software Sênior 🍀 <p>
